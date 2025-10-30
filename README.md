@@ -1,8 +1,1 @@
-![Anime Sign](https://media1.tenor.com/m/ST_WhL-G1awAAAAd/sign-anime.gif)
-![Anime Sign](https://media1.tenor.com/m/aakTztvetLsAAAAC/makima-csm.gif)
-![Anime](https://media1.tenor.com/m/mzR62e2MDBAAAAAC/aesthetic-retrowave.gif)
 ![Anime](https://media1.tenor.com/m/j_p_CwZo9FwAAAAC/rebecca.gif)
-![anime](https://media.tenor.com/EKvpNswbcCAAAAAi/makima-chainsaw.gif)
-![anime](https://media1.tenor.com/m/i_YM486E28IAAAAC/anime-love.gif)
-![anime](https://media1.tenor.com/m/4gzOuXamHN4AAAAC/bill-cipher-gravity-falls.gif)
-![aa](https://media1.tenor.com/m/1bUoUF5jdUwAAAAd/anime.gif)
