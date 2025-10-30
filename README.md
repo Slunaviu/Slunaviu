@@ -1,4 +1,8 @@
-<img src="https://i.pinimg.com/736x/91/df/5b/91df5b348a7cc8eb6b3bda8df46a3030.jpg" width="500"/>
-
-> 🎧 I listen to Bones.
-> 🕸 Join me — [discord.com/invite/Yff5Njxpr5](https://discord.com/invite/Yff5Njxpr5)
+![Anime Sign](https://media1.tenor.com/m/ST_WhL-G1awAAAAd/sign-anime.gif)
+![Anime Sign](https://media1.tenor.com/m/aakTztvetLsAAAAC/makima-csm.gif)
+![Anime](https://media1.tenor.com/m/mzR62e2MDBAAAAAC/aesthetic-retrowave.gif)
+![Anime](https://media1.tenor.com/m/j_p_CwZo9FwAAAAC/rebecca.gif)
+![anime](https://media.tenor.com/EKvpNswbcCAAAAAi/makima-chainsaw.gif)
+![anime](https://media1.tenor.com/m/i_YM486E28IAAAAC/anime-love.gif)
+![anime](https://media1.tenor.com/m/4gzOuXamHN4AAAAC/bill-cipher-gravity-falls.gif)
+![aa](https://media1.tenor.com/m/1bUoUF5jdUwAAAAd/anime.gif)
